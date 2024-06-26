@@ -54,7 +54,7 @@ Give credit here.
 
 
 ## Contact
-Created by [@vermaprashali] - feel free to contact me!
+Created by [@Prashaliverma] - feel free to contact me!
 
 
 <!-- Optional -->
